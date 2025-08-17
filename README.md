@@ -1,4 +1,4 @@
-# Lithium-V4 | One Of The Best Nuker Over The Cord.
+# Lithium-V4 | 
 This is the premium version of Lithium-V2 and its one kf the best nuker on the cord.
 
 ## Support
